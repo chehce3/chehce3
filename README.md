@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on everything that i could 
 - 📫 How to reach me ...
 - 😄 Pronouns: she/her 
-- ⚡ Fun fact: i would like to start a company that offers cibersecurity for big companies
+- ⚡ Fun fact: i would like to start a company focused on cibersecurity 
 - 
 
 <!---
